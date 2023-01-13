@@ -1,5 +1,4 @@
 ## Hi there, I'm Karen
-<img width="878" alt="Frame 3" src="https://user-images.githubusercontent.com/80543183/162275600-0653635a-a5e3-461a-afc1-747c3fd8fec4.png">
 
 ### Skills
 > I am going to learn the following skills
